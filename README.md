@@ -1,7 +1,3 @@
-# hevennnn.github.io
-Heaven Lawrenz T. Aguinillo
-
-
 # Sacraments of the Catholic Church
 **Sacraments are grace instituted by Jesus Christ for us to be sanctified by God's holiness.** The Catholic Church indicates that the sacraments are necessary for salvation, though not every sacrament is necessary for every individual. In the teachings of the Roman Catholic Church, the sacraments are efficacious signs of grace, instituted by Christ and entrusted to the Church, by which divine life is dispensed to us. The visible rites by which the sacraments are celebrated signify and make present the graces proper to each sacrament. They bear fruit in those who receive them with the required dispositions.
 
