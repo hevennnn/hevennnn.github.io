@@ -26,6 +26,10 @@ In this Sacrament, the baptized person is sealed with the gift of the Holy Spiri
 
 The Church teaches that Confirmation confirms Baptism and is the second formal step in the process of becoming initiated into the Christian community. Confirmation is an invitation to each one of us to renew the Baptismal promises first made on our behalf by our parents and godparents when we were baptised. This process invites us into a deeper way of relating to God, to Jesus and to one another, and to becoming more actively involved in the life of the community through the ongoing presence of the Holy Spirit.
 
+![Gifts of the Holy Spirit](https://scontent.fwnp1-1.fna.fbcdn.net/v/t1.6435-9/100783264_2899942743456513_6547487173837324288_n.jpg?stp=dst-jpg_p552x414&_nc_cat=108&ccb=1-7&_nc_sid=dd63ad&_nc_eui2=AeFh0PB5uWpi9_pYg_tE7BTe2FfekN70d5PYV96Q3vR3k02-7uhLfMhx7qrwZwTNZm1saKvabv9kkhyvL0382PYs&_nc_ohc=wh0Ukd9w23MAX8-NBMz&_nc_ht=scontent.fwnp1-1.fna&oh=00_AfDOJ3sO0hy64bOwBP8djtcOwMRkJqqDrj-HIp1r-51I8g&oe=659554E6)
+
+![Confirmation](https://judeatl.com/wp-content/uploads/2022/04/8F5A4917-scaled.jpg)
+
 ### Sacrament of Confession
 > Then I declared my sin to you; my guilt I did not hide. I said, “I confess my transgression to the Lord,” and you took away the guilt of my sin. - Psalms 32:5 (NABRE)
 
