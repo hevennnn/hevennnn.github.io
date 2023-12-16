@@ -40,3 +40,12 @@ Jesus entrusted the ministry of reconciliation to the Church. The Sacrament is G
 ![Pope Francis Confessing](https://www.catholicnewsagency.com/images/Pope_Francis_2_goes_to_Confession_during_a_penitential_celebration_at_St_Peters_Basilica_March_28_2014_Credit_LOsservatore_Romano_CNA_3_28_14.jpg?jpg)
 
 ![Painting of Confession](https://uploads.weconnect.com/b033879f0a817041288079edd0d92fb80fd0caca/tgaxfi3ot6v7sw9kvkqj6g5g0sl.jpg)
+
+### Anointing of the Sick
+> Is anyone among you sick? He should summon the presbyters of the church, and they should pray over him and anoint [him] with oil in the name of the Lord - James 5:14 (NABRE)
+
+Anointing of the Sick is a sacrament which serves as a channel for special graces from God that comfort and heal, physically and/or spiritually, people who are seriously ill and in danger of death. The anointing of the sick can be administered to a Catholic having reached the use of reason, begins to be in danger due to sickness or old age. In this sacrament, through the ministry of the priest, it is Jesus who touches the sick to heal them from sin – and sometimes even from physical ailment. When the Sacrament of Anointing of the Sick is given, the hoped-for effect is that, if it be God's will, the person be physically healed of illness. Although even if there is no physical healing, the primary effect of the Sacrament is a spiritual healing by which the sick person receives the Holy Spirit's gift of peace and courage to deal with the difficulties that accompany serious illness or the frailty of old age. The sacrament is administered by a priest who mainly anoints the patient's forehead while reciting prayers for peace, comfort, healing, and courage.
+
+The special grace of the sacrament of the Anointing of the Sick has its own effects: the uniting of the sick person to the passion of Christ, for his own good and that of the whole Church; the strengthening, peace, and courage to endure in a Christian manner the sufferings of illness or old age; the forgiveness of sins, if the sick person was not able to obtain it through the sacrament of penance; the restoration of health, if it is conducive to the salvation of his soul; the preparation for passing over to eternal life
+
+![Anointing of the Sick](https://christthekingparish.ph/wp-content/uploads/2016/09/anointing-3-300x200.jpg)
