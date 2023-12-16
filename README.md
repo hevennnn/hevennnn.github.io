@@ -60,3 +60,14 @@ By their marriage, the couple witnesses Christ's spousal love for the Church. Th
 ![Marriage #1](https://stpatswashington.com/sites/stpatsparish/files/styles/open_graph/public/uploads/images/marriage.jpg?itok=XsWpGRyn)
 
 ![Marriage #2](https://quizizz.com/media/resource/gs/quizizz-media/quizzes/bbc0ebc2-1bc8-4fec-bc83-db4f84d1cf87)
+
+### Sacrament of Holy Orders
+> So I exhort the presbyters among you, as a fellow presbyter and witness to the sufferings of Christ and one who has a share in the glory to be revealed. Tend the flock of God in your midst, [overseeing] not by constraint but willingly, as God would have it, not for shameful profit but eagerly. Do not lord it over those assigned to you, but be examples to the flock. And when the chief Shepherd is revealed, you will receive the unfading crown of glory. - 1 Peter 5:1-4 (NABRE)
+
+Pope Francis once said, "Becoming a priest or a man or woman religious is not primarily our own decision, rather it is the response to a call and to a call of love.". The Sacrament of Holy Orders is the sacrament by which bishops, priests and deacons are ordained and receive the power and grace to perform their sacred duties. The sacred rite by which orders are conferred is called ordination. The apostles were ordained by Jesus at the Last Supper so that others could share in His priesthood. Since Christ entrusted his mission to the apostles, He instituted the Holy Orders so His mission can continue to be exercised by the Church until the end of time. It includes three degrees: episcopate (bishop), presbyterate (priest), and diaconate (deacon).
+
+Ordination to the priesthood is always a call and a gift from God. Christ reminded his Apostles that they needed to ask the Lord of the harvest to send laborers into the harvest. Those who seek priesthood respond generously to God's call. This call from God can be recognized and understood from the daily signs that disclose his will to those in charge of discerning the vocation of the candidate.
+
+![Holy Orders #1](https://www.learnreligions.com/thmb/aOUYnEKCnhugytSLpK2kk_ESxAc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc()/Pope-Benedict-Ordains-a-Bishop-56a108015f9b58eba4b6fab4.jpg)
+
+![Holy Orders #2](https://sspx.org/sites/sspx/files/styles/dici_image_full_width/public/news/ordination_priesthood460.jpg?itok=EJm8pfY-)
