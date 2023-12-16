@@ -3,6 +3,8 @@
 
 The visible reality we see in the Sacraments is their outward expression, the form they take, and the way in which they are administered and received. The invisible reality we cannot "see" is God's grace, his gracious initiative in redeeming us through the death and Resurrection of his Son. His initiative is called grace because it is the free and loving gift by which he offers people a share in his life, and shows us his favor and will for our salvation. Our response to the grace of God's initiative is itself a grace or gift from God by which we can imitate Christ in our daily lives.
 
+
+
 ## Sacraments of Initiation - Initiation to the Church
 The Sacraments of Initiation signify the process of being welcomed into the Christian family. Baptism is the starting point, cleansing individuals from original sin and incorporating them into the faith. Confirmation strengthens their commitment, empowering them with the gifts of the Holy Spirit. Eucharist, the centerpiece, fosters communion with Christ and the community, offering spiritual sustenance for life's journey. Together, these sacraments mark the beginning of a lifelong adventure of faith, identity, and participation in the Body of Christ.
 
@@ -38,6 +40,8 @@ The Church teaches that Confirmation confirms Baptism and is the second formal s
 
 ![Confirmation](https://judeatl.com/wp-content/uploads/2022/04/8F5A4917-scaled.jpg)
 
+
+
 ## Sacraments of Healing - Restoration and Wholeness
 The Sacraments of Healing serve as channels for spiritual and physical restoration. Reconciliation, through confession and absolution, allows individuals to experience God's mercy and forgiveness, promoting inner healing and reconciliation with the community. Anointing of the Sick, administered in times of illness or distress, imparts God's grace for strength and, if it aligns with God's plan, physical healing. These sacraments embody the compassionate presence of Christ, offering solace and renewal in times of vulnerability.
 
@@ -64,6 +68,8 @@ Anointing of the Sick is a sacrament which serves as a channel for special grace
 The special grace of the sacrament of the Anointing of the Sick has its own effects: the uniting of the sick person to the passion of Christ, for his own good and that of the whole Church; the strengthening, peace, and courage to endure in a Christian manner the sufferings of illness or old age; the forgiveness of sins, if the sick person was not able to obtain it through the sacrament of penance; the restoration of health, if it is conducive to the salvation of his soul; the preparation for passing over to eternal life. (CCC 1514)
 
 ![Anointing of the Sick](https://christthekingparish.ph/wp-content/uploads/2016/09/anointing-3-300x200.jpg)
+
+
 
 ## Sacraments of Service or Communion - Dedication to being God's servant
 The Sacraments of Service or Communion, Holy Orders and Matrimony, signify a dedication to service within the Church and the broader community. Holy Orders sets individuals apart for roles of leadership and ministry, allowing them to serve the faithful and administer the sacraments. Matrimony sanctifies the bond of marriage, emphasizing mutual self-giving, fidelity, and openness to life. Together, these sacraments underscore the call to selfless service, whether in the ordained ministry or the vocation of marriage, contributing to the building of God's kingdom and the unity of the Church.
