@@ -33,4 +33,10 @@ The Church teaches that Confirmation confirms Baptism and is the second formal s
 ### Sacrament of Confession
 > Then I declared my sin to you; my guilt I did not hide. I said, “I confess my transgression to the Lord,” and you took away the guilt of my sin. - Psalms 32:5 (NABRE)
 
-The Sacrament of Confession, also known as Penance or Reconciliation...
+The Sacrament of Confession, also known as Penance or Reconciliation is grace instituted by Jesus Christ in His love and mercy to offer sinners forgiveness for offenses committed against God. In the sacrament, sinners reconcile with the Church who is wounded by our sins, it is an experience of the gift of God's boundless mercy. 
+
+Jesus entrusted the ministry of reconciliation to the Church. The Sacrament is God's gift to us so that any sin committed after Baptism can be forgiven.  In the sacrament, we have the opportunity to repent and recover the grace of friendship with God. It is a holy moment in which we place ourselves in his presence and honestly acknowledge our sins, With absolution, we are reconciled to God and the Church. The Sacrament helps us stay close to the truth that we cannot live without God.
+
+![Pope Francis Confessing](https://www.catholicnewsagency.com/images/Pope_Francis_2_goes_to_Confession_during_a_penitential_celebration_at_St_Peters_Basilica_March_28_2014_Credit_LOsservatore_Romano_CNA_3_28_14.jpg?jpg)
+
+![Painting of Confession](https://uploads.weconnect.com/b033879f0a817041288079edd0d92fb80fd0caca/tgaxfi3ot6v7sw9kvkqj6g5g0sl.jpg)
